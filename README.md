@@ -2,4 +2,4 @@
 - 👀 I’m interested in all IT
 - 🌱 I’m currently learning IT engineer course
 - 💞️ I’m looking to collaborate on nothing! I don't have time right now.
-- 📫 How to reach me: be email
+- 📫 How to reach me: by email
